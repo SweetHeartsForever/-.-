@@ -1,6 +1,2 @@
-<img width="735" height="653" alt="🥩🥩🥩🥩🥩🥩🥩" src="https://github.com/user-attachments/assets/c42b3288-c56a-43e2-9374-60830be828d9" />
-
-𓏼ㅤ　　　　　𓏼ㅤ　　　　　𓏼ㅤ　　　　grilled / zan 𓏼   🐾 
-                           https://grilledddd.straw.page
-                           
-<img width="735" height="588" alt="Meat" src="https://github.com/user-attachments/assets/deb01e18-c4a5-4b9f-a32b-ede467f1ea7a" />
+<img width="735" height="588" alt="Meat" src="https://github.com/user-attachments/assets/05786bb1-d3c9-436f-882a-5b80c03e7b98" />
+https://grilledddd.straw.page
